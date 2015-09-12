@@ -1,6 +1,6 @@
 # Greatest Films
 
-A list of movies that will move you.
+Movies that will move you.
 
 ####A Prophet (Original Title: "Un prophète") - 2009
 
