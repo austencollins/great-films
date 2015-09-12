@@ -1,6 +1,6 @@
 # Greatest Films
 
-Movies that will move you.
+You don't realize it, but all you want is a satisfying emotional experience.  The movies below will get you there.  The pacing and language will differ, along with everything else, but sit tight.  These movies will move you.
 
 ####A Prophet (Original Title: "Un prophète") - 2009
 
