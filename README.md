@@ -1,5 +1,5 @@
 # Greatest Films
-My list of the greatest films
+Films made by masters.
 
 ####Tangerines (Original Title: "Mandariinid") - 2013
 
