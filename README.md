@@ -24,3 +24,11 @@ A gripping mystery set among a group of old friends on a holiday retreat. With t
 ####High Noon - 1952
 
 In this controversial western classic, Gary Cooper as Will Kane must delay his retirement as town marshal on the morning of his wedding to Grace Kelly in order to face outlaws planning to kill him. Three are waiting in and around town for the noon train that will bring their boss. Taut drama and crisp characterization examine the town's reaction to Kane's dilemma. As noon approaches, his new bride prepares to leave town-and him-based on her Quaker principles of nonviolence. His deputy (Bridges) wants to prove himself without Kane around; his former lover (Jurado), who is now seeing the deputy, was once involved with the leader of the men coming to kill him, and has to make choices of her own. 
+
+####The Lives Of Others (Original Title: "Das Leben der Anderen") - 2006
+
+In 1984 East Berlin, an agent of the secret police, conducting surveillance on a writer and his lover, finds himself becoming increasingly absorbed by their lives.
+
+####Network - 1976
+
+A television network cynically exploits a deranged former anchor's ravings and revelations about the news media for its own profit.
