@@ -17,6 +17,11 @@ Set in contemporary Iran, A Separation is a compelling drama about the dissoluti
 
 Set in 1992, during the growing conflict between Georgia and Abkhazian separatists in the wake of the Soviet Union's dissolution, this compassionate tale focuses on two Estonian immigrant farmers who decide to remain in Georgia long enough to harvest their tangerine crop. When the war comes to their doorsteps, Ivo (played by legendary Estonian actor Lembit Ulfsak) takes in two wounded soldiers from opposite sides. The fighters vow to kill each other when they recover, but their extended period of recovery has a humanizing effect that might transcend ethnic divides. Set against a beautiful landscape defiled by war, this poetic film makes an eloquent statement for peace.
 
+####Heat - 1995
+
+A group of professional bank robbers start to feel the heat from police when they unknowingly leave a clue at their latest heist.
+
+
 ####About Elly (Original Title: "Darbareye Elly") - 2009
 
 A gripping mystery set among a group of old friends on a holiday retreat. With the return of their close friend Ahmad from Germany, a group of former college pals decide to reunite for a weekend outing by the Caspian Sea. The fun starts right away as they quickly catch on to the plan of lively Sepideh, who has brought along Elly, her daughter's kindergarten teacher, in hopes of setting her up with recently divorced Ahmad. But seemingly trivial lies, which start accumulating from the moment the group arrives at the seashore, suddenly swing round and come back full force when one afternoon Elly suddenly vanishes. Her mysterious disappearance sets in motion a series of deceptions and revelations that threaten to shatter everything they hold dear.
