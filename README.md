@@ -1,6 +1,6 @@
 # Greatest Films
 
-A list of films made by masters of their craft.
+IMDB and RottenTomatoes are mostly garbage.  Here is a list of movies that will move you.
 
 ####A Prophet (Original Title: "Un prophète") - 2009
 
