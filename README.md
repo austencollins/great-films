@@ -1,6 +1,6 @@
 # Greatest Films
 
-You don't realize it, but all you want is a satisfying emotional experience.  The movies below will get you there.  The pacing, language and all other details will differ, but sit tight.  These movies will move you.
+You don't realize it, but all you want is a satisfying emotional experience.  The movies below will get you there.  The pacing, language and other details will differ, but sit tight.  These movies will move you.
 
 ####A Prophet (Original Title: "Un prophète") - 2009
 
