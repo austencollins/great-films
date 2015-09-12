@@ -4,8 +4,6 @@ A list of films made by masters of their craft.
 
 ####A Prophet (Original Title: "Un prophète") - 2009
 
-*An unknown kid goes to prison and exits a mafia leader, need I say more?*
-
 Condemned to six years in prison, Malik El Djebena, part Arab, part Corsican, cannot read or write. Arriving at the jail entirely alone, he appears younger and more fragile than the other convicts. He is 19 years old. Cornered by the leader of the Corsican gang currently ruling the prison, he is given a number of "missions" to carry out, toughening him up and gaining the gang leader's confidence in the process. Malik is a fast learner and rises up the prison ranks, all the while secretly devising his own plans.
 
 ####A Separation (Original Title: "Jodaeiye Nader az Simin") - 2011
