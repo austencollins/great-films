@@ -37,3 +37,7 @@ In 1984 East Berlin, an agent of the secret police, conducting surveillance on a
 ####Network - 1976
 
 A television network cynically exploits a deranged former anchor's ravings and revelations about the news media for its own profit.
+
+####Notorious - 1946
+
+A woman is asked to spy on a group of Nazi friends in South America. How far will she have to go to ingratiate herself with them?
