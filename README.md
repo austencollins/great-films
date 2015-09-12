@@ -1,6 +1,14 @@
 # Greatest Films
 Films made by masters.
 
+####A Prophet (Original Title: "Un prophète") - 2009
+
+Condemned to six years in prison, Malik El Djebena, part Arab, part Corsican, cannot read or write. Arriving at the jail entirely alone, he appears younger and more fragile than the other convicts. He is 19 years old. Cornered by the leader of the Corsican gang currently ruling the prison, he is given a number of "missions" to carry out, toughening him up and gaining the gang leader's confidence in the process. Malik is a fast learner and rises up the prison ranks, all the while secretly devising his own plans.
+
+####Incendies - 2011
+
+Director Denis Villeneuve adapts Wajdi Mouawad's play concerning a pair of twins who make a life-altering discovery following the death of their mother. Upon learning that their absentee father is still very much alive and they also have a brother they have never met, the pair travels to the Middle East on a mission to uncover the truth about their mystery-shrouded past.
+
 ####Tangerines (Original Title: "Mandariinid") - 2013
 
 Set in 1992, during the growing conflict between Georgia and Abkhazian separatists in the wake of the Soviet Union's dissolution, this compassionate tale focuses on two Estonian immigrant farmers who decide to remain in Georgia long enough to harvest their tangerine crop. When the war comes to their doorsteps, Ivo (played by legendary Estonian actor Lembit Ulfsak) takes in two wounded soldiers from opposite sides. The fighters vow to kill each other when they recover, but their extended period of recovery has a humanizing effect that might transcend ethnic divides. Set against a beautiful landscape defiled by war, this poetic film makes an eloquent statement for peace.
