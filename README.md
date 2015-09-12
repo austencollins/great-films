@@ -1,5 +1,6 @@
 # Greatest Films
-A list of films made by masters.
+
+A list of films made by masters of their craft.
 
 ####A Prophet (Original Title: "Un prophète") - 2009
 
