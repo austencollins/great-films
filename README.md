@@ -45,3 +45,7 @@ A woman is asked to spy on a group of Nazi friends in South America. How far wil
 ####8 1/2 - 1963
 
 A harried movie director retreats into his memories and fantasies.
+
+####L' avventura - 1960
+
+In Michelangelo Antonioni’s groundbreaking and controversial arthouse milestone, the mystery of a woman’s disappearance from a Mediterranean island is left unresolved.
