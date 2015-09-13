@@ -1,6 +1,6 @@
 # Greatest Films
 
-You don't realize it, but all you want is a satisfying emotional experience. These movies will get you there. Genre, culture and other details will differ, but sit tight. These movies will move you.
+You don't realize it, but all you want is a satisfying emotional experience. These movies will get you there. Genre, culture and other details will vary, but sit tight. These movies will move you.
 
 ####The Hunt (Original Title: "The Hunt") - 2013
 
