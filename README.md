@@ -1,6 +1,6 @@
 # Film Reviews By Engineers
 
-**Pick a film with strong conflict.  Review that conflict, then resolve it.**
+Pick a film with strong conflict.  Review that conflict, then resolve it.
 
 ####Interesting Films In Need Of Reviews By Engineers ------------
 
