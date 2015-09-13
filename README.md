@@ -36,7 +36,7 @@ A retired legal counselor writes a novel hoping to find closure for one of his p
 
 In 1984 East Berlin, an agent of the secret police, conducting surveillance on a writer and his lover, finds himself becoming increasingly absorbed by their lives.
 
-####City Of God (Original Title: "") - 2003
+####City Of God (Original Title: "Cidade de Deus") - 2003
 
 Fernando Meirelles' City of God is a sweeping tale of how crime affects the poor population of Rio de Janeiro. Though the narrative skips around in time, the main focus is on Cabeleira who formed a gang called the Tender Trio. He and his best friend, Bené (Phelipe Haagensen), become crime lords over the course of a decade. When Bené is killed before he can retire, Lil' Zé attempts to take out his arch enemy, Sandro Cenoura (Matheus Nachtergaele). But Sandro and a young gangster named Mane form an alliance and begin a gang war with Lil' Zé. Amateur photographer Buscape (Alexandre Rodrigues) takes pictures of the brutal crime war, making their story famous. City of God was screened at the 2002 Cannes Film Festival.
 
