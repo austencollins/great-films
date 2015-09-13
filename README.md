@@ -2,26 +2,21 @@
 
 You don't realize it, but all you want is a satisfying emotional experience.  These movies will get you there.  Pacing, language and other details will differ, but sit tight.  These movies will move you.
 
-####A Prophet (Original Title: "Un prophète") - 2009
+####Tangerines (Original Title: "Mandariinid") - 2013
 
-Condemned to six years in prison, Malik El Djebena, part Arab, part Corsican, cannot read or write. Arriving at the jail entirely alone, he appears younger and more fragile than the other convicts. He is 19 years old. Cornered by the leader of the Corsican gang currently ruling the prison, he is given a number of "missions" to carry out, toughening him up and gaining the gang leader's confidence in the process. Malik is a fast learner and rises up the prison ranks, all the while secretly devising his own plans.
-
-####A Separation (Original Title: "Jodaeiye Nader az Simin") - 2011
-
-Set in contemporary Iran, A Separation is a compelling drama about the dissolution of a marriage. Simin wants to leave Iran with her husband Nader and daughter Termeh. Simin sues for divorce when Nader refuses to leave behind his Alzheimer-suffering father. Her request having failed, Simin returns to her parents' home, but Termeh decides to stay with Nader. When Nader hires a young woman to assist with his father in his wife's absence, he hopes that his life will return to a normal state. However, when he discovers that the new maid has been lying to him, he realizes that there is more on the line than just his marriage.
+Set in 1992, during the growing conflict between Georgia and Abkhazian separatists in the wake of the Soviet Union's dissolution, this compassionate tale focuses on two Estonian immigrant farmers who decide to remain in Georgia long enough to harvest their tangerine crop. When the war comes to their doorsteps, Ivo (played by legendary Estonian actor Lembit Ulfsak) takes in two wounded soldiers from opposite sides. The fighters vow to kill each other when they recover, but their extended period of recovery has a humanizing effect that might transcend ethnic divides. Set against a beautiful landscape defiled by war, this poetic film makes an eloquent statement for peace.
 
 ####Incendies - 2011
 
 Director Denis Villeneuve adapts Wajdi Mouawad's play concerning a pair of twins who make a life-altering discovery following the death of their mother. Upon learning that their absentee father is still very much alive and they also have a brother they have never met, the pair travels to the Middle East on a mission to uncover the truth about their mystery-shrouded past.
 
-####Tangerines (Original Title: "Mandariinid") - 2013
+####A Separation (Original Title: "Jodaeiye Nader az Simin") - 2011
 
-Set in 1992, during the growing conflict between Georgia and Abkhazian separatists in the wake of the Soviet Union's dissolution, this compassionate tale focuses on two Estonian immigrant farmers who decide to remain in Georgia long enough to harvest their tangerine crop. When the war comes to their doorsteps, Ivo (played by legendary Estonian actor Lembit Ulfsak) takes in two wounded soldiers from opposite sides. The fighters vow to kill each other when they recover, but their extended period of recovery has a humanizing effect that might transcend ethnic divides. Set against a beautiful landscape defiled by war, this poetic film makes an eloquent statement for peace.
+Set in contemporary Iran, A Separation is a compelling drama about the dissolution of a marriage. Simin wants to leave Iran with her husband Nader and daughter Termeh. Simin sues for divorce when Nader refuses to leave behind his Alzheimer-suffering father. Her request having failed, Simin returns to her parents' home, but Termeh decides to stay with Nader. When Nader hires a young woman to assist with his father in his wife's absence, he hopes that his life will return to a normal state. However, when he discovers that the new maid has been lying to him, he realizes that there is more on the line than just his marriage.
 
-####Heat - 1995
+####A Prophet (Original Title: "Un prophète") - 2009
 
-A group of professional bank robbers start to feel the heat from police when they unknowingly leave a clue at their latest heist.
-
+Condemned to six years in prison, Malik El Djebena, part Arab, part Corsican, cannot read or write. Arriving at the jail entirely alone, he appears younger and more fragile than the other convicts. He is 19 years old. Cornered by the leader of the Corsican gang currently ruling the prison, he is given a number of "missions" to carry out, toughening him up and gaining the gang leader's confidence in the process. Malik is a fast learner and rises up the prison ranks, all the while secretly devising his own plans.
 
 ####About Elly (Original Title: "Darbareye Elly") - 2009
 
@@ -31,21 +26,25 @@ A gripping mystery set among a group of old friends on a holiday retreat. With t
 
 A retired legal counselor writes a novel hoping to find closure for one of his past unresolved homicide cases and for his unreciprocated love with his superior - both of which still haunt him decades later.
 
-####High Noon - 1952
-
-In this controversial western classic, Gary Cooper as Will Kane must delay his retirement as town marshal on the morning of his wedding to Grace Kelly in order to face outlaws planning to kill him. Three are waiting in and around town for the noon train that will bring their boss. Taut drama and crisp characterization examine the town's reaction to Kane's dilemma. As noon approaches, his new bride prepares to leave town-and him-based on her Quaker principles of nonviolence. His deputy (Bridges) wants to prove himself without Kane around; his former lover (Jurado), who is now seeing the deputy, was once involved with the leader of the men coming to kill him, and has to make choices of her own. 
-
 ####The Lives Of Others (Original Title: "Das Leben der Anderen") - 2006
 
 In 1984 East Berlin, an agent of the secret police, conducting surveillance on a writer and his lover, finds himself becoming increasingly absorbed by their lives.
 
+####City Of God (Original Title: "") - 2003
+
+Fernando Meirelles' City of God is a sweeping tale of how crime affects the poor population of Rio de Janeiro. Though the narrative skips around in time, the main focus is on Cabeleira who formed a gang called the Tender Trio. He and his best friend, Bené (Phelipe Haagensen), become crime lords over the course of a decade. When Bené is killed before he can retire, Lil' Zé attempts to take out his arch enemy, Sandro Cenoura (Matheus Nachtergaele). But Sandro and a young gangster named Mane form an alliance and begin a gang war with Lil' Zé. Amateur photographer Buscape (Alexandre Rodrigues) takes pictures of the brutal crime war, making their story famous. City of God was screened at the 2002 Cannes Film Festival.
+
+####Heat - 1995
+
+A group of professional bank robbers start to feel the heat from police when they unknowingly leave a clue at their latest heist.
+
+####Seven - 1995
+
+Two detectives, a rookie and a veteran, hunt a serial killer who uses the seven deadly sins as his modus operandi.
+
 ####Network - 1976
 
 A television network cynically exploits a deranged former anchor's ravings and revelations about the news media for its own profit.
-
-####Notorious - 1946
-
-A woman is asked to spy on a group of Nazi friends in South America. How far will she have to go to ingratiate herself with them?
 
 ####8 1/2 - 1963
 
@@ -54,3 +53,11 @@ A harried movie director retreats into his memories and fantasies.
 ####L' avventura - 1960
 
 In Michelangelo Antonioni’s groundbreaking and controversial arthouse milestone, the mystery of a woman’s disappearance from a Mediterranean island is left unresolved.
+
+####High Noon - 1952
+
+In this controversial western classic, Gary Cooper as Will Kane must delay his retirement as town marshal on the morning of his wedding to Grace Kelly in order to face outlaws planning to kill him. Three are waiting in and around town for the noon train that will bring their boss. Taut drama and crisp characterization examine the town's reaction to Kane's dilemma. As noon approaches, his new bride prepares to leave town-and him-based on her Quaker principles of nonviolence. His deputy (Bridges) wants to prove himself without Kane around; his former lover (Jurado), who is now seeing the deputy, was once involved with the leader of the men coming to kill him, and has to make choices of her own. 
+
+####Notorious - 1946
+
+A woman is asked to spy on a group of Nazi friends in South America. How far will she have to go to ingratiate herself with them?
