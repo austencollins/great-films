@@ -1,10 +1,12 @@
-# Greatest Films
+# Film Reviews By Engineers
 
-You don't realize it, but all you want is a satisfying emotional experience.  These movies will get you there.  Pacing, language and other details will differ, but sit tight.  These movies will move you.
+**Pick a film with strong conflict.  Review that conflict, then resolve it.**
+
+####Interesting Films In Need Of Reviews By Engineers ------------
 
 ####Tangerines (Original Title: "Mandariinid") - 2013
 
-Set in 1992, during the growing conflict between Georgia and Abkhazian separatists in the wake of the Soviet Union's dissolution, this compassionate tale focuses on two Estonian immigrant farmers who decide to remain in Georgia long enough to harvest their tangerine crop. When the war comes to their doorsteps, Ivo (played by legendary Estonian actor Lembit Ulfsak) takes in two wounded soldiers from opposite sides. The fighters vow to kill each other when they recover, but their extended period of recovery has a humanizing effect that might transcend ethnic divides. Set against a beautiful landscape defiled by war, this poetic film makes an eloquent statement for peace.
+*Set in 1992, during the growing conflict between Georgia and Abkhazian separatists in the wake of the Soviet Union's dissolution, this compassionate tale focuses on two Estonian immigrant farmers who decide to remain in Georgia long enough to harvest their tangerine crop. When the war comes to their doorsteps, Ivo (played by legendary Estonian actor Lembit Ulfsak) takes in two wounded soldiers from opposite sides. The fighters vow to kill each other when they recover, but their extended period of recovery has a humanizing effect that might transcend ethnic divides. Set against a beautiful landscape defiled by war, this poetic film makes an eloquent statement for peace.*
 
 ####Incendies - 2011
 
