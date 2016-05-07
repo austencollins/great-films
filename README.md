@@ -1,4 +1,4 @@
-# Great Films
+# Movies You Watch Alone
 
 A list of films with great stories, well told.
 
