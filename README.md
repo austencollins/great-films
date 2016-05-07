@@ -1,4 +1,4 @@
-# Great Story
+# Great Films
 
 A list of films with great stories, well told.
 
