@@ -8,7 +8,8 @@ The story of the relationship between Karamakate, an Amazonian shaman and last s
 
 *"In this moment, it is not possible for me to know, dear reader, if the infinite jungle has started on me the process that has taken many others that have ventured into these lands, to complete and irremediable insanity.*
 *If this is the case, I can only apologize and ask for your understanding, for the display I witnessed in those enchanted hours was such, that I find it impossible to describe in a language that allows others to understand its beauty and splendor; all I know is that, like all those who have shed the thick veil that blinded them, when I came back to my senses, I had become another man."*
-* — THEODOR KOCH-GRÜNBERG, 1907*
+
+*- THEODOR KOCH-GRÜNBERG, 1907*
 
 ####Room - 2015
 
