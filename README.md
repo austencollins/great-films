@@ -1,6 +1,14 @@
 # Great Films
 
-You don't realize it, but all you want is a satisfying emotional experience. These movies will get you there.
+Great stories, well told.
+
+####Embrace Of The Serpant - 2015
+
+The story of the relationship between Karamakate, an Amazonian shaman and last survivor of his people, and two scientists who work together over the course of 40 years to search the Amazon for a sacred healing plant.
+
+####Room - 2015
+
+A young boy is raised within the confines of a small shed.
 
 ####99 Homes - 2015
 
