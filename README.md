@@ -11,8 +11,6 @@ The story of the relationship between Karamakate, an Amazonian shaman and last s
 
 —THEODOR KOCH-GRÜNBERG, 1907
 
-This slow, yet gripping film reminded me that it is possible there are many ways to wisdom, beauty, healing and splendor, filling my life with profound and welcome mystery. 
-
 ####Room - 2015
 
 A young boy is raised within the confines of a small shed.
