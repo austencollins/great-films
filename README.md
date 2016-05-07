@@ -1,6 +1,6 @@
 # Great Films
 
-Great stories, well told.
+A list of films with great stories, well told.
 
 ####Embrace Of The Serpant - 2015
 
