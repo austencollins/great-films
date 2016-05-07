@@ -1,6 +1,6 @@
-# Movies You Watch Alone
+# Greatest Films
 
-Great stories, well told, best experienced on your own.
+A list of films with great stories, well told.
 
 ####Embrace Of The Serpant - 2015
 
