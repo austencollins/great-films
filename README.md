@@ -64,6 +64,10 @@ A group of professional bank robbers start to feel the heat from police when the
 
 Two detectives, a rookie and a veteran, hunt a serial killer who uses the seven deadly sins as his modus operandi.
 
+#### Unforgiven - 1992
+
+Clint Eastwood's 1992 Oscar-winner examines the mythic violence of the Western, taking on the ghosts of his own star past.
+
 #### Network - 1976
 
 A television network cynically exploits a deranged former anchor's ravings and revelations about the news media for its own profit.
