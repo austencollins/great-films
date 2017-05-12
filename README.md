@@ -87,3 +87,7 @@ In this controversial western classic, Gary Cooper as Will Kane must delay his r
 #### Notorious - 1946
 
 A woman is asked to spy on a group of Nazi friends in South America. How far will she have to go to ingratiate herself with them?
+
+### Oldboy - 2003
+
+Dae-Su is an obnoxious drunk bailed from the police station yet again by a friend. However, he's abducted from the street and wakes up in a cell, where he remains for the next 15 years, drugged unconscious when human contact is unavoidable, otherwise with only the television as company. And then, suddenly released, he is invited to track down his jailor with a denouement that is simply stunning
