@@ -68,6 +68,10 @@ Two detectives, a rookie and a veteran, hunt a serial killer who uses the seven 
 
 Clint Eastwood's 1992 Oscar-winner examines the mythic violence of the Western, taking on the ghosts of his own star past.
 
+#### Hannah And Her Sisters - 1986
+
+"We try to organize our lives according to what we have read and learned and believed in, but our plans are lost in a tumult of emotion."
+
 #### Network - 1976
 
 A television network cynically exploits a deranged former anchor's ravings and revelations about the news media for its own profit.
