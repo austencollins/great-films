@@ -44,7 +44,7 @@ A gripping mystery set among a group of old friends on a holiday retreat. With t
 
 A retired legal counselor writes a novel hoping to find closure for one of his past unresolved homicide cases and for his unreciprocated love with his superior - both of which still haunt him decades later.
 
-#### 3:10 To Yuma
+#### 3:10 To Yuma - 2007
 
 Outlaw Ben Wade (Russell Crowe) terrorizes 1800s Arizona, especially the Southern Railroad, until he is finally captured. Wade must be brought to trial, so Dan Evans (Christian Bale), the owner of a drought-stricken ranch, volunteers to escort him to the train. Along the trail, a grudging respect forms between the men, but danger looms at every turn, and the criminal's men are in pursuit.
 
