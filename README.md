@@ -2,6 +2,10 @@
 
 A list of great stories, well told.
 
+#### Only The Brave - 2017
+
+Based on the true story of the Granite Mountain Hotshots, a group of elite firefighters who risk everything to protect a town from a historic wildfire.
+
 #### Embrace Of The Serpant - 2015
 
 The story of the relationship between Karamakate, an Amazonian shaman and last survivor of his people, and two scientists who work together over the course of 40 years to search the Amazon for a sacred healing plant.
