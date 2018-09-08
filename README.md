@@ -18,6 +18,10 @@ A young boy is raised within the confines of a small shed.
 
 Set amidst the backdrop of the 2008 housing market catastrophe, Dennis Nash, a hard-working and honest man, can't save his family home despite his best efforts. Thrown to the streets with alarming precision by real estate shark Mike Carver, Dennis, out of work and luck, is given a unique opportunity - to join Carver's crew and put others through the harrowing ordeal done to him in order to earn back what's his.
 
+#### Locke - 2014
+
+Ivan Locke (Hardy) has worked diligently to craft the life he has envisioned, dedicating himself to the job that he loves and the family he adores. On the eve of the biggest challenge of his career, Ivan receives a phone call that sets in motion a series of events that will unravel his family, job, and soul.
+
 #### The Hunt ("Jagten") - 2013
 
 The story is set in a small Danish village around Christmas,
