@@ -2,6 +2,10 @@
 
 A list of great stories, well told.
 
+#### The Guilty ("DEN SKYLDIGE") - 2018
+
+When police officer Asger Holm (Jakob Cedergren) is demoted to desk work, he expects a sleepy beat as an emergency dispatcher. That all changes when he answers a panicked phone call from a kidnapped woman who then disconnects abruptly. Asger, confined to the police station, is forced to use others as his eyes and ears as the severity of the crime slowly becomes more clear. The search to find the missing woman and her assailant will take every bit of his intuition and skill, as a ticking clock and his own personal demons conspire against him.
+
 #### Only The Brave - 2017
 
 Based on the true story of the Granite Mountain Hotshots, a group of elite firefighters who risk everything to protect a town from a historic wildfire.
