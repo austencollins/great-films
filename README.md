@@ -2,6 +2,11 @@
 
 A list of great stories, well told.
 
+
+#### The Favourite - 2019
+
+Early 18th century. England is at war with the French. Nevertheless, duck racing and pineapple eating are thriving. A frail Queen Anne (Olivia Colman) occupies the throne and her close friend Lady Sarah Churchill (Rachel Weisz) governs the country in her stead while tending to Anne's ill health and mercurial temper. When a new servant Abigail Masham (Emma Stone) arrives, her charm endears her to Sarah. Sarah takes Abigail under her wing and Abigail sees a chance at a return to her aristocratic roots. As the politics of war become quite time consuming for Sarah, Abigail steps into the breach to fill in as the Queen's companion. Their burgeoning friendship gives her a chance to fulfill her ambitions and she will not let woman, man, politics or rabbit stand in her way.
+
 #### The Guilty ("Den Skyldige") - 2018
 
 When police officer Asger Holm (Jakob Cedergren) is demoted to desk work, he expects a sleepy beat as an emergency dispatcher. That all changes when he answers a panicked phone call from a kidnapped woman who then disconnects abruptly. Asger, confined to the police station, is forced to use others as his eyes and ears as the severity of the crime slowly becomes more clear. The search to find the missing woman and her assailant will take every bit of his intuition and skill, as a ticking clock and his own personal demons conspire against him.
