@@ -2,9 +2,6 @@
 
 A list of great stories, well told.
 
-<img src="https://u37rpgs6je.execute-api.us-east-1.amazonaws.com/dev/tracker?cacheSeconds=2592000" />
-
-
 #### The Favourite - 2019
 
 Early 18th century. England is at war with the French. Nevertheless, duck racing and pineapple eating are thriving. A frail Queen Anne (Olivia Colman) occupies the throne and her close friend Lady Sarah Churchill (Rachel Weisz) governs the country in her stead while tending to Anne's ill health and mercurial temper. When a new servant Abigail Masham (Emma Stone) arrives, her charm endears her to Sarah. Sarah takes Abigail under her wing and Abigail sees a chance at a return to her aristocratic roots. As the politics of war become quite time consuming for Sarah, Abigail steps into the breach to fill in as the Queen's companion. Their burgeoning friendship gives her a chance to fulfill her ambitions and she will not let woman, man, politics or rabbit stand in her way.
