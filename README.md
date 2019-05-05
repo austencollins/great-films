@@ -2,7 +2,7 @@
 
 A list of great stories, well told.
 
-![coverage](https://u37rpgs6je.execute-api.us-east-1.amazonaws.com/dev/tracker?cacheSeconds=2592000)
+<img src="https://u37rpgs6je.execute-api.us-east-1.amazonaws.com/dev/tracker?cacheSeconds=2592000" />
 
 
 #### The Favourite - 2019
