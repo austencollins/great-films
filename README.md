@@ -1,4 +1,4 @@
-![Great Films](./greatfilmsdark.png)
+![Great Films](./greatfilmslight.png)
 
 **Great stories, well told.**  
 
