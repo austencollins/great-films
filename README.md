@@ -1,6 +1,6 @@
 # Great Films
 
-**Great stories, well told.**
+**Great stories, well told.**  
 
 These films purposefully diverge from those on typical internet lists. They don't share genre or culture. What they do share is masterful writing and execution. Most recently added first.
 
