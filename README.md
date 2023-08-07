@@ -1,6 +1,14 @@
 # Great Films
 
-A list of great stories, well told.
+**A list of great stories, well told.**
+
+Most recently added first.
+
+#### Prospect - 2018
+
+A teenage girl and her father travel to a remote alien moon, aiming to strike it rich. They've secured a contract to harvest a large deposit of the elusive gems hidden in the depths of the moon's toxic forest. But there are others roving the wilderness and the job quickly devolves into a fight to survive.
+
+**Why:** The writing expertly crafts situations where the character has no other choices engaging you logically and emotionally as they are pushed more deeply into crises. Also, if you're a fan of westerns, this has a wonderful Treasure of the Sierra Madre vibe.
 
 #### The Favourite - 2019
 
